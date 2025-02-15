@@ -1,2 +1,5 @@
 # DICTIONARY
 30 ENGINEERING WORDS 
+
+VIDEO OF THE PROJECT
+https://youtube.com/shorts/Vl9JSTL67II?si=oCclE7_ULEMQzwlb
